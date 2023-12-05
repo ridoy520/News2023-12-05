@@ -189,4 +189,5 @@ https://amzn.to/3t9J95l
 
 বাংলাদেশে ৫ দশমিক ১২ শতাংশ মানুষ দারিদ্র্যসীমার নিচে
 বাংলাদেশে ৫ দশমিক ১২ শতাংশ মানুষ দারিদ্র্যসীমার নিচে বসবাস করে।
-
+Jack Wolfskin Women's Cold Bay Jacket W
+https://amzn.to/3R2P5oO
